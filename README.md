@@ -15,7 +15,7 @@ Students were welcomed with traditional refreshments like pakodas, gulab jamun, 
 
 ### Mr. Harsimran Singh Jaggi
 
-•He gave a warm welcome and spoke about the legacy, vision, and values of GNDEC.
+  •He gave a warm welcome and spoke       about the legacy, vision, and          values of GNDEC.
 
 •His emphasis on academic excellence, research, and a student-focused approach gave me insight into the college's commitment.
 

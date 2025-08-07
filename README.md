@@ -79,7 +79,7 @@ It started early with a session by the Causmic Club in the auditorium. The club 
 We attended a lecture by Dr. Randhir Singh on the "Conduct of Examinations".
 
 #### 10:30 AM to 12:30 PM - 
-We had an expert lecture by Dr. Priya Darshni Madam on "Universal Human Values." This lecture was very inspiring as she spoke about  Happiness and Prosperity, Three essential-( Right Understanding Relationship Physical Facility),Holistic development in our life.
+We had an expert lecture by Dr. Priya Darshni Madam on "Universal Human Values." This lecture was very inspiring as she spoke about  Happiness and Prosperity, Three essential-( Right Understanding, Relationship, Physical Facility),Holistic development in our life.
 
 #### 12:30 PM to 1:30 PM -
 We had a lunch break

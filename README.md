@@ -55,7 +55,7 @@ During this time, students explored the labs and interacted with faculty members
 ### DAY2 (01-08-2025) 
 
 #### 9:00 AM to 11:00AM - Universal Human Values 
-The day began with an expert lecture by Dr. Priya Darshni Madam. In which she gave us deep insights  of Basic human aspirations Evaluation of our efforts Planning for a fulfilling life Multiple ways to fullfill aspirations Common aspirations and concerns in our personal and professional lives.
+The day began with an expert lecture by Dr. Priya Darshni Madam. In which she gave us deep insights  of Basic human aspirations, Evaluation of our efforts, Planning for a fulfilling life, Multiple ways to fullfill aspirations, Common aspirations and concerns in our personal and professional lives.
 
 #### 11:00 AM to 12:30 PM - 
 I attended another enriching session conducted by Dr. Arvind Dhingra (Director of STEP and Incharge of TAC). He asked for 7 boys and 7 girls to come up on stage whom he asked to perform a team strategy game. 

@@ -61,7 +61,7 @@ The day began with an expert lecture by Dr. Priya Darshni Madam. In which she ga
 I attended another enriching session conducted by Dr. Arvind Dhingra (Director of STEP and Incharge of TAC). He asked for 7 boys and 7 girls to come up on stage whom he asked to perform a team strategy game. 
 
 #### 12:30 PM to 1:30 PM - 
-We had a short lunch break 
+We had a lunch break 
 
 #### 1:30 PM to 2:30 PM - 
 We appeared for the English Proficiency Test in our assigned rooms. The test helped assess our basic communication and comprehension skills.

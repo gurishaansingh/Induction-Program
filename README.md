@@ -70,7 +70,7 @@ We appeared for the English Proficiency Test in our assigned rooms. The test hel
 #### 2:30 PM to 3:30 PM - 
 We had the Maths Proficiency Test, which checked our foundational mathematical abilities.
 
-### Day 3  (04-08-2025)
+### DAY 3  (04-08-2025)
 
 #### 8:30 AM to 9:30 AM - 
 It started early with a session by the Causmic Club in the auditorium. The club shared about some of the activities they perform in the club and encouraged us to join the club, which really grabbed my attention.
@@ -86,3 +86,11 @@ We had a lunch break
 
 #### 1:30 PM to 3:30 PM - 
 We had subject-wise lectures of P2P and Physics
+
+### DAY 4  (05-08-2025)
+
+#### 2:30 PM to 3:00 PM- 
+Our first speaker Dr. Amit Kamra (Incharge- Digital Marketing Club) gave us some valuable tips of marketing. 
+
+#### 3:00 PM to 4:00 PM - 
+Expert lecture by Mrs. Shaffy Makkar on topic "Millet Super Food". She gave a general overview of Millets. She told us about the benefits of the different Millets and the different methods to cook different types of Millets

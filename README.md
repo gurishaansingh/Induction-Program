@@ -82,7 +82,7 @@ We attended a lecture by Dr. Randhir Singh on the "Conduct of Examinations".
 We had an expert lecture by Dr. Priya Darshni Madam on "Universal Human Values." This lecture was very inspiring as she spoke about  Happiness and Prosperity, Three essential-( Right Understanding Relationship Physical Facility),Holistic development in our life.
 
 #### 12:30 PM to 1:30 PM -
-We had a lunch break from 
+We had a lunch break
 
 #### 1:30 PM to 3:30 PM - 
 We had subject-wise lectures of P2P and Physics

@@ -15,39 +15,39 @@ Students were welcomed with traditional refreshments like pakodas, gulab jamun, 
 
 ### Mr. Harsimran Singh Jaggi
 
-He gave a warm welcome and spoke about the legacy, vision, and values of GNDEC.
+•He gave a warm welcome and spoke about the legacy, vision, and values of GNDEC.
 
-His emphasis on academic excellence, research, and a student-focused approach gave me insight into the college's commitment.
+•His emphasis on academic excellence, research, and a student-focused approach gave me insight into the college's commitment.
 
-He also provided a detailed campus overview and explained the key student facilities.
+•He also provided a detailed campus overview and explained the key student facilities.
 
 
 ### Dr. Sehajpal Singh
 
-Explained the college’s history and the significance of the 70th anniversary.
+•Explained the college’s history and the significance of the 70th anniversary.
 
-His clarity made complex ideas easy to grasp – a trait I appreciate in great educators.
+•His clarity made complex ideas easy to grasp – a trait I appreciate in great educators.
 
-I admired his encouragement for students to see themselves as part of GNDEC’s legacy.
+•I admired his encouragement for students to see themselves as part of GNDEC’s legacy.
 
 ### Mrs. Harpreet Kaur Garewal
 
-Spoke to students with the intent to bridge school learning and engineering education.
+•Spoke to students with the intent to bridge school learning and engineering education.
 
-She advised students to treat their first year as a foundation-building phase.
+•She advised students to treat their first year as a foundation-building phase.
 
-I found her message empowering, especially her thoughts on transitioning smoothly into engineering academics.
+•I found her message empowering, especially her thoughts on transitioning smoothly into engineering academics.
 
 
 ### Mr. Maheshinder Singh Garewal
 
-Delivered a highly motivating session. His talk about the NSET Trust and his own experiences was deeply impactful.
+•Delivered a highly motivating session. His talk about the NSET Trust and his own experiences was deeply impactful.
 
-He highlighted confidence-building and personality development - something I strongly advocate for learners.
+•He highlighted confidence-building and personality development - something I strongly advocate for learners.
 
-His message on continuous self-improvement resonated deeply with me.
+•His message on continuous self-improvement resonated deeply with me.
 
-He was later honored by the college for his contribution.
+•He was later honored by the college for his contribution.
 
 #### 01:30 PM to 03:30 PM – Electrical Engineering Department Tour
 
@@ -62,7 +62,7 @@ The day began with an expert lecture by Dr. Priya Darshni Madam. In which she ga
 I attended another enriching session conducted by Dr. Arvind Dhingra (Director of STEP and Incharge of TAC). He asked for 7 boys and 7 girls to come up on stage whom he asked to perform a team strategy game. 
 
 #### 12:30 PM to 1:30 PM - 
-We had a lunch break 
+We had a lunch break. 
 
 #### 1:30 PM to 2:30 PM - 
 We appeared for the English Proficiency Test in our assigned rooms. The test helped assess our basic communication and comprehension skills.
@@ -85,7 +85,7 @@ We had an expert lecture by Dr. Priya Darshni Madam on "Universal Human Values."
 We had a lunch break
 
 #### 1:30 PM to 3:30 PM - 
-We had subject-wise lectures of P2P and Physics
+We had subject-wise lectures of P2P and Physics. 
 
 ### DAY 4  (05-08-2025)
 
@@ -93,7 +93,7 @@ We had subject-wise lectures of P2P and Physics
 Our first speaker Dr. Amit Kamra (Incharge- Digital Marketing Club) gave us some valuable tips of marketing. 
 
 #### 3:00 PM to 4:00 PM - 
-Expert lecture by Mrs. Shaffy Makkar on topic "Millet Super Food". She gave a general overview of Millets. She told us about the benefits of the different Millets and the different methods to cook different types of Millets
+Expert lecture by Mrs. Shaffy Makkar on topic "Millet Super Food". She gave a general overview of Millets. She told us about the benefits of the different Millets and the different methods to cook different types of Millets. 
 
 ### DAY 5 (06-08-2025)
 

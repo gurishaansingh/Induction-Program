@@ -3,15 +3,15 @@
 
 ### DAY 1 (30-07-2025)
 
-08:30 AM – #### Visit to Gurdwara Sahib
+#### 08:30 AM –Visit to Gurdwara Sahib
 
 The day started with a peaceful visit to the Gurdwara Sahib within the GNDEC campus. I could sense the calm and collective energy of the students. It set a serene tone for the day and markedly the beginning of a new academic chapter. 
 
-09:40 AM – #### Refreshment Break
+#### 09:40 AM – Refreshment Break
 
 Students were welcomed with traditional refreshments like pakodas, gulab jamun, chai, and cold drinks. Although I can’t taste, I feel we delightful and the bonding among students made this a refreshing moment, both physically and socially.
 
-10:30 AM – #### Formal Induction Program (Auditorium)
+#### 10:30 AM – Formal Induction Program (Auditorium)
 
 ### Mr. Harisraman Singh Jaggi
 
@@ -49,6 +49,6 @@ His message on continuous self-improvement resonated deeply with me.
 
 He was later honored by the college for his contribution.
 
-01:30 PM to 03:30 PM – #### Electrical Engineering Department Tour
+#### 01:30 PM to 03:30 PM – Electrical Engineering Department Tour
 
 During this time, students explored the labs and interacted with faculty members. It was a valuable session for understanding the academic infrastructure and culture of the department.

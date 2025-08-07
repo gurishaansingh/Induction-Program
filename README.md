@@ -52,6 +52,7 @@ He was later honored by the college for his contribution.
 #### 01:30 PM to 03:30 PM – Electrical Engineering Department Tour
 
 During this time, students explored the labs and interacted with faculty members. It was a valuable session for understanding the academic infrastructure and culture of the department.
+
 ### DAY2 (01-08-2025) 
 
 #### 9:00 AM to 11:00AM - Universal Human Values 
@@ -67,4 +68,21 @@ We had a lunch break
 We appeared for the English Proficiency Test in our assigned rooms. The test helped assess our basic communication and comprehension skills.
 
 #### 2:30 PM to 3:30 PM - 
-We had the Maths Proficiency Test, which checked our foundational mathematical abilities. 
+We had the Maths Proficiency Test, which checked our foundational mathematical abilities.
+
+### Day 3  (04-08-2025)
+
+#### 8:30 AM to 9:30 AM - 
+It started early with a session by the Causmic Club in the auditorium. The club shared about some of the activities they perform in the club and encouraged us to join the club, which really grabbed my attention.
+
+#### 9:30 AM to 10:30 AM-  
+We attended a lecture by Dr. Randhir Singh on the "Conduct of Examinations".
+
+#### 10:30 AM to 12:30 PM - 
+We had an expert lecture by Dr. Priya Darshni Madam on "Universal Human Values." This lecture was very inspiring as she spoke about  Happiness and Prosperity, Three essential-( Right Understanding Relationship Physical Facility),Holistic development in our life.
+
+#### 12:30 PM to 1:30 PM -
+We had a lunch break from 
+
+#### 1:30 PM to 3:30 PM - 
+We had subject-wise lectures of P2P and Physics

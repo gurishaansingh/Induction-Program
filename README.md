@@ -94,3 +94,17 @@ Our first speaker Dr. Amit Kamra (Incharge- Digital Marketing Club) gave us some
 
 #### 3:00 PM to 4:00 PM - 
 Expert lecture by Mrs. Shaffy Makkar on topic "Millet Super Food". She gave a general overview of Millets. She told us about the benefits of the different Millets and the different methods to cook different types of Millets
+
+### DAY 5 (06-08-2025)
+
+#### 9:30 AM to 10:00 AM - 
+Dr. Parminder Singh told us about student welfare in the college and about all the clubs/ societies operated by the students or facility members in the college.
+
+#### 10:00 AM to 11:00 AM -
+The first speaker of the day, Mr. Manpreet Singh ( Fitness Expert) delivered an energetic lecture on "Fitness for Engineers". He inspired us by telling story of his life and motivated everyone to be physically and mentally fit. At last, he shared some tips for balanced diet and exercises.
+
+#### 11:00 AM to 12:30 PM -
+The second speaker, Brigadier P.S.Cheema Sir shared expertise of his life. He motivated us to join armed forces of India and serve our nation.
+
+#### 1:30 PM to 3:30 PM - 
+We had a lecture of "Motorsports" by Mr. Gautam Murria and English lecture by Prof. Nisha. 

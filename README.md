@@ -3,7 +3,7 @@
 
 ### DAY 1 (31-07-2025)
 
-#### 08:30 AM –Visit to Gurdwara Sahib
+#### 08:30 AM –Visit to Gurudwara Sahib
 
 The day started with a peaceful visit to the Gurdwara Sahib within the GNDEC campus. I could sense the calm and collective energy of the students. It set a serene tone for the day and markedly the beginning of a new academic chapter. 
 
@@ -13,7 +13,7 @@ Students were welcomed with traditional refreshments like pakodas, gulab jamun, 
 
 #### 10:30 AM – Formal Induction Program (Auditorium)
 
-### Mr. Harisraman Singh Jaggi
+### Mr. Harsimran Singh Jaggi
 
 He gave a warm welcome and spoke about the legacy, vision, and values of GNDEC.
 

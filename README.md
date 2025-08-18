@@ -1,7 +1,7 @@
 # Induction-Program
 ## Gurishaan Singh Electrical Engeenering 
 
-### DAY 1 (31-07-2025)
+### DAY 1 (30-07-2025)
 
 #### 08:30 AM –Visit to Gurudwara Sahib
 

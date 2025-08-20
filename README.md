@@ -56,10 +56,10 @@ During this time, students explored the labs and interacted with faculty members
 ### *DAY2 (01-08-2025)*
 
 #### *9:00 AM to 11:00AM - Universal Human Values*
-The day began with an expert lecture by Dr. Priya Darshni Madam. In which she gave us deep insights  of Basic human aspirations, Evaluation of our efforts, Planning for a fulfilling life, Multiple ways to fullfill aspirations, Common aspirations and concerns in our personal and professional lives.
+The day began with an expert lecture by *Dr. Priya Darshni Madam*. In which she gave us deep insights  of Basic human aspirations, Evaluation of our efforts, Planning for a fulfilling life, Multiple ways to fullfill aspirations, Common aspirations and concerns in our personal and professional lives.
 
 #### *11:00 AM to 12:30 PM -*
-I attended another enriching session conducted by Dr. Arvind Dhingra (Director of STEP and Incharge of TAC). He asked for 7 boys and 7 girls to come up on stage whom he asked to perform a team strategy game. 
+I attended another enriching session conducted by *Dr. Arvind Dhingra* (Director of STEP and Incharge of TAC). He asked for 7 boys and 7 girls to come up on stage whom he asked to perform a team strategy game. 
 
 #### *12:30 PM to 1:30 PM -*
 We had a lunch break.
@@ -73,13 +73,13 @@ We had the Maths Proficiency Test, which checked our foundational mathematical a
 ### *DAY 3  (04-08-2025)*
 
 #### *8:30 AM to 9:30 AM -*
-It started early with a session by the Causmic Club in the auditorium. The club shared about some of the activities they perform in the club and encouraged us to join the club, which really grabbed my attention.
+It started early with a session by the *Causmic Club* in the auditorium. The club shared about some of the activities they perform in the club and encouraged us to join the club, which really grabbed my attention.
 
 #### *9:30 AM to 10:30 AM-* 
-We attended a lecture by Dr. Randhir Singh on the "Conduct of Examinations".
+We attended a lecture by *Dr. Randhir Singh* on the "Conduct of Examinations".
 
 #### *10:30 AM to 12:30 PM -*
-We had an expert lecture by Dr. Priya Darshni Madam on "Universal Human Values." This lecture was very inspiring as she spoke about  Happiness and Prosperity, Three essential-( Right Understanding, Relationship, Physical Facility),Holistic development in our life.
+We had an expert lecture by *Dr. Priya Darshni Madam* on **"Universal Human Values."** This lecture was very inspiring as she spoke about  Happiness and Prosperity, Three essential-( Right Understanding, Relationship, Physical Facility),Holistic development in our life.
 
 #### *12:30 PM to 1:30 PM -*
 We had a lunch break
@@ -90,52 +90,40 @@ We had subject-wise lectures of P2P and Physics.
 ### *DAY 4  (05-08-2025)*
 
 #### *2:30 PM to 3:00 PM-*
-Our first speaker Dr. Amit Kamra (Incharge- Digital Marketing Club) gave us some valuable tips of marketing. 
+Our first speaker *Dr. Amit Kamra* (Incharge- Digital Marketing Club) gave us some valuable tips of marketing. 
 
 #### *3:00 PM to 4:00 PM -* 
-Expert lecture by Mrs. Shaffy Makkar on topic "Millet Super Food". She gave a general overview of Millets. She told us about the benefits of the different Millets and the different methods to cook different types of Millets. 
+Expert lecture by *Mrs. Shaffy Makkar* on topic "Millet Super Food". She gave a general overview of Millets. She told us about the benefits of the different Millets and the different methods to cook different types of Millets. 
+
+
 
 ### *DAY 5 (06-08-2025)*
 
-#### *9:30 AM to 10:00 AM -* 
-Dr. Parminder Singh told us about student welfare in the college and about all the clubs/ societies operated by the students or facility members in the college.
+#### *9:30 AM to 10:00 AM*
+*Dr. Parminder Singh* informed us aaboutthe college facilities, hostel details, and various clubs available on campus. He also guided us on whom to approach in case of any problem and shared information about scholarships.
 
-#### *10:00 AM to 11:00 AM -*
-The first speaker of the day, Mr. Manpreet Singh ( Fitness Expert) delivered an energetic lecture on "Fitness for Engineers". He inspired us by telling story of his life and motivated everyone to be physically and mentally fit. At last, he shared some tips for balanced diet and exercises.
+#### *10:00 AM to 11:00 AM*
+*Mr. Manpreet Singh* (Fitness Coach) explained how we can stay physically fit and avoid drugs. He provided insights on steroids, including who they are meant for. He also engaged students in activities such as push-ups and gave valuable tips about fitness.
 
-#### *11:00 AM to 12:30 PM -*
-The second speaker, Brigadier P.S.Cheema Sir shared expertise of his life. He motivated us to join armed forces of India and serve our nation.
+#### *11:00 AM to 12:30 PM* 
+*Brigadier P.S. Cheema* shared valuable life lessons, explaining how to bring discipline into our lives. He also gave us detailed information about the NCC.
 
-#### *1:30 PM to 3:30 PM -*
-We had a lecture of "Motorsports" by Mr. Gautam Murria and English lecture by Prof. Nisha.
+#### *1:30 PM to 2:30 PM*  
+*Mr. Gautam Murria* introduced us to the field of motorsports, sharing interesting facts and opportunities in this area.
+
+#### *2:30 PM to 3:30 PM* 
+We attended an English Communication class where the teacher conducted introductions to help improve our speaking confidence.
 
 ### *DAY 6 (07-08-2025)*
 
-#### *9:30 AM to 10:00 AM*
-*Dr. Parminder Singh* informed us aaboutthe **college facilities**, **hostel details**, and **various clubs** available on campus. He also guided us on **whom to approach in case of any problem** and shared information about **scholarships**.
-
-#### *10:00 AM to 11:00 AM*
-*Mr. Manpreet Singh* (Fitness Coach) explained how we can **stay physically fit** and **avoid drugs**. He provided insights on **steroids**, including who they are meant for. He also engaged students in activities such as **push-ups** and gave valuable tips about **fitness**.
-
-#### *11:00 AM to 12:30 PM* 
-*Brigadier P.S. Cheema* shared **valuable life lessons**, explaining how to bring **discipline** into our lives. He also gave us detailed information about the **NCC**.
-
-#### *1:30 PM to 2:30 PM*  
-*Mr. Gautam Sir* introduced us to the field of **motorsports**, sharing interesting facts and opportunities in this area.
-
-#### *2:30 PM to 3:30 PM* 
-We attended an **English Communication** class where the teacher conducted **introductions** to help improve our speaking confidence.
-
-### *DAY 7 (08-08-2025)*
-
 #### *9:30 AM to 10:30 AM* 
-We had our **Mathematics** class where we learned about **basic maths concepts** and were informed about the **syllabus**.
+We had our Mathematics class where we learned about basic maths concepts and were informed about the syllabus.
 
 #### *10:30 AM to 11:30 AM* 
-We attended a **Physics** class in which the teacher revised some **basic topics** with us.
+We attended a Physics class in which the teacher revised some basic topics with us.
 
 #### *12:30 PM to 2:30 PM* 
-*Mr. Lakhwinder Singh Sir* introduced us to **CML** and explained how it helps in our **overall development**, boosts our **confidence**, and supports our **personal growth**.  
-He also informed us about **NPTEL**, explaining how we can learn from **IIT professors for free** and enhance our skills.
+*Mr. Lakhwinder Singh Sir* introduced us to CML and explained how it helps in our overall development, boosts our confidence, and supports our personal growth.  
+He also informed us about NPTEL, explaining how we can learn from IIT professors for free and enhance our skills.
 #### *2:30 PM to 3:30 PM**  
-We listened to **Kirtan** performed by the **NSS volunteers**, followed by listening to different **Raags**. Afterwards, the **NSS volunteers** and *Mr. Jasvir Singh Garewal* (Head of NSS) explained the concept of **NSS** and how it helps people. They also engaged students in **
+We listened to Kirtan performed by the NSS volunteers, followed by listening to different Raags. Afterwards, the NSS volunteers and *Mr. Jasvir Singh Garewal* (Head of NSS) explained the concept of NSS and how it helps people. 

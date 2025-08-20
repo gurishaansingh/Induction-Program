@@ -107,4 +107,21 @@ The first speaker of the day, Mr. Manpreet Singh ( Fitness Expert) delivered an 
 The second speaker, Brigadier P.S.Cheema Sir shared expertise of his life. He motivated us to join armed forces of India and serve our nation.
 
 #### 1:30 PM to 3:30 PM - 
-We had a lecture of "Motorsports" by Mr. Gautam Murria and English lecture by Prof. Nisha. 
+We had a lecture of "Motorsports" by Mr. Gautam Murria and English lecture by Prof. Nisha.
+
+### DAY 6 (07-08-2025) 
+
+#### 9:30 AM to 10:00 AM 
+*Dr. Parminder Singh* informed us aaboutthe **college facilities**, **hostel details**, and **various clubs** available on campus. He also guided us on **whom to approach in case of any problem** and shared information about **scholarships**.
+
+#### **10:00 AM to 11:00 AM**  
+*Mr. Manpreet Singh* (Fitness Coach) explained how we can **stay physically fit** and **avoid drugs**. He provided insights on **steroids**, including who they are meant for. He also engaged students in activities such as **push-ups** and gave valuable tips about **fitness**.
+
+#### **11:00 AM to 12:30 PM**  
+*Brigadier P.S. Cheema* shared **valuable life lessons**, explaining how to bring **discipline** into our lives. He also gave us detailed information about the **NCC**.
+
+#### **1:30 PM to 2:30 PM**  
+*Mr. Gautam Sir* introduced us to the field of **motorsports**, sharing interesting facts and opportunities in this area.
+
+#### **2:30 PM to 3:30 PM**  
+We attended an **English Communication** class where the teacher conducted **introductions** to help improve our speaking confidence.
